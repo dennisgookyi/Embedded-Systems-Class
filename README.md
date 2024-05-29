@@ -8,4 +8,4 @@ Textbooks:
 
 Lecture videos can be found here: 
 
-Old Lecture videos can be found here: https://www.youtube.com/playlist?list=PLPO0UeWHqx569gH7j5xTK0oboks_-JT6G.
+Old Lecture videos can be found here: https://www.youtube.com/playlist?list=PLPO0UeWHqx543sXF1SKuRTEknfI1wdY4-
